@@ -34,4 +34,4 @@ If you'd like to collaborate, hire, or just connect, feel free to reach out via 
 
 ---
 
-Want to add a downloadable PDF version or link this to your portfolio site? I can help you set that up too.
+
